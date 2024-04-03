@@ -1,0 +1,2 @@
+# yow-resolusi
+resolusi palennn
